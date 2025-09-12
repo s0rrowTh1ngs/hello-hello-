@@ -1,2 +1,5 @@
-# hello-hello-
-school is taking over my mind soo i need to rlly study. 
+Schools started.
+studying.
+
+You can find me on ponytown!. 
+🦪
